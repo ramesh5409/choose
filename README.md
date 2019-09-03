@@ -1,3 +1,3 @@
 # choose
 
-shivalinga
+shivalingaya
